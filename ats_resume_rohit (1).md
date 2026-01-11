@@ -1,7 +1,7 @@
 # Rohit Roby
 
-**36 Chartfield Road, Cherry Hinton, Cambridge, CB1 9JY, United Kingdom**  
-**Email:** rohitroby12@gmail.com | **Phone:** +44 7442369828  
+**Pinakatt house, Palavayal PO, Cherupuzha, Kerala, India, pin: 670511**  
+**Email:** rohitroby1208@gmail.com | **Phone:** +91 7012175799  
 **LinkedIn:** www.linkedin.com/in/rohitroby
 
 ---
